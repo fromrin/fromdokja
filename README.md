@@ -1,2 +1,16 @@
+<p align="center"><img src="https://i.imgur.com/DM8Oq2I.png&=75" width="200">
 
- ![orv-omniscient-readers-viewpoint](https://github.com/user-attachments/assets/e050c3e9-1151-4051-85ac-d55f15027d42)
+    
+<p align="center"><img src="https://files.catbox.moe/f6kgg8.png" width="440">
+<p align="center"> altㅤ𓂃ㅤ@fromdokja
+
+
+    
+<h1 align="center"></[retros](https://retrospring.net/@goroplushie)>
+
+
+
+[![](https://i.imgur.com/916AUfE.png&=75"width="80")](https://rentry.co/anti-thief) 
+
+
+
